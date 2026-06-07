@@ -1,85 +1,202 @@
-<img width="734" height="297" alt="ba9aac62fd2de99fcc7498f8ae248b7a" src="https://github.com/user-attachments/assets/ec21100b-ffe5-4817-beec-427a14e6ea2c" />
+<p align="center">
+<img width="498" height="211" alt="6a939207fdcf670aadb50bfc7b28bc46" src="https://github.com/user-attachments/assets/2d082934-1773-427a-ba89-4971a426d49e" />
 
+</p>
 
+<div align="center">
 
-${\textcolor{#d7263d}{╔═══════}}$ ${\textcolor{#ffffff}{𝒋𝒂𝒎𝒊𝒆}}$ ${\textcolor{#4f7cff}{═══════╗}}$
+# ╔══════════════ ★ ══════════════╗
 
-${\textcolor{#ffffff}{brightflame\ /\ snowghost\ /\ etc}}$
+### ✨️ 𝒋𝒂𝒎𝒊𝒆 ✨️
 
-${\textcolor{#d7263d}{❤️‍🔥}}$ ${\textcolor{#ffffff}{there's\ something\ about\ me\ that\ may\ push\ people\ away}}$ ${\textcolor{#4f7cff}{✨️}}$
+##### brightflamed / snowghost / etc
 
-${\textcolor{#ffffff}{i'm\ not\ perfect.\ i\ don't\ pretend\ to\ be.}}$
+╚══════════════ ★ ══════════════╝
 
-${\textcolor{#d7263d}{✦}}$ ${\textcolor{#ffffff}{BEFORE\ INTERACTING}}$ ${\textcolor{#4f7cff}{✦}}$
+</div>
 
-${\textcolor{#ffffff}{◈\ 19\ y.o.}}$
+<div align="center">
 
-${\textcolor{#ffffff}{◈\ if\ you're\ under\ 17-18,\ better\ not\ interact}}$
+✦ 𝖙𝖍𝖊𝖗𝖊'𝖘 𝖘𝖔𝖒𝖊𝖙𝖍𝖎𝖓𝖌 𝖆𝖇𝖔𝖚𝖙 𝖒𝖊 𝖙𝖍𝖆𝖙 𝖒𝖆𝖞 𝖕𝖚𝖘𝖍 𝖕𝖊𝖔𝖕𝖑𝖊 𝖆𝖜𝖆𝖞 ✦
 
-${\textcolor{#ffffff}{◈\ often\ afk\ /\ w2i}}$
+*i'm (not) perfect. i don't pretend to be.*
 
-${\textcolor{#ffffff}{◈\ may\ refuse\ communication\ if\ busy}}$
+</div>
 
-${\textcolor{#ffffff}{◈\ c+h\ freely\ if\ no\ dni/dnt}}$
+---
 
-${\textcolor{#ffffff}{◈\ asking\ first\ =\ appreciated\ ♡}}$
+<div align="center">
 
-${\textcolor{#d7263d}{✠}}$ ${\textcolor{#ffffff}{RED\ FLAGS}}$ ${\textcolor{#4f7cff}{✠}}$
+★ ☆ ★ ONE AND ONLY ★ ☆ ★
 
-${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{darkshipper}}$
+</div>
 
-${\textcolor{#d8d8d8}{unhealthy\ dynamics\ are\ often\ more\ interesting\ to\ me}}$
+## 🦅 BEFORE INTERACTING
 
-${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{i\ use\ feminitives}}$
+```diff
++ AGE :: 19
++ STATUS :: often afk / w2i
++ CONTACT :: c+h freely if no dni/dnt
++ ASKING FIRST :: appreciated ⋆
+```
 
-${\textcolor{#d8d8d8}{doesn't\ automatically\ make\ me\ radfem}}$
+```fix
+INTERACTION NOTICE
 
-${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{check\ my\ pairings\ carefully}}$
+if you're under 17-18,
+better not interact
+```
 
-${\textcolor{#d8d8d8}{some\ plots\ may\ be\ uncomfortable\ for\ certain\ people}}$
+```yaml
+availability:
+  may refuse communication if busy
+```
 
-${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{conflict\ avoidant}}$
+---
 
-${\textcolor{#d8d8d8}{if\ you\ drag\ me\ into\ drama,\ i'll\ leave}}$
+<p align="center">
+<img src="1000036646.gif" width="100%">
+</p>
 
-${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{pony\ town\ note}}$
+<div align="center">
 
-${\textcolor{#ffffff}{not\ looking\ for\ friends\ /\ lovers\ /\ long-term\ attachments}}$
+# ❗️ WARNING FILE ❗️
 
-${\textcolor{#d8d8d8}{casual\ communication\ only}}$
+</div>
 
-${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{what\ upsets\ me\ most}}$
+```diff
+! darkshipper
+```
 
-${\textcolor{#d8d8d8}{people\ who\ hide\ things,\ collect\ resentment,\ and\ never\ speak\ openly}}$
+> unhealthy dynamics are often more interesting to me
 
-${\textcolor{#4f7cff}{✨️}}$ ${\textcolor{#ffffff}{MAIN\ FANDOMS}}$ ${\textcolor{#d7263d}{❤️‍🔥}}$
+---
 
-${\textcolor{#d7263d}{⚔️}}$ ${\textcolor{#ffffff}{A\ SONG\ OF\ ICE\ AND\ FIRE}}$ ${\textcolor{#4f7cff}{⚔️}}$
+```diff
+! i use feminitives
+```
 
-${\textcolor{#d8d8d8}{all\ books\ •\ all\ adaptations\ •\ all\ versions}}$
+> doesn't automatically make me radfem
 
-${\textcolor{#ffffff}{my\ favorite\ universe\ and\ always\ will\ be}}$
+---
 
-${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{THE\ BOYS}}$
+```diff
+! check my pairings carefully
+```
 
-${\textcolor{#d8d8d8}{comics\ •\ adaptation\ •\ not\ gen\ v}}$
+> some plots may be uncomfortable for certain people
 
-${\textcolor{#4f7cff}{⭐}}$ ${\textcolor{#ffffff}{MARVEL}}$
+---
 
-${\textcolor{#d8d8d8}{comics\ •\ mcu\ •\ always\ come\ back}}$
+```diff
+! conflict avoidant
+```
 
-${\textcolor{#d7263d}{🔪}}$ ${\textcolor{#ffffff}{SCREAM}}$
+> if you drag me into drama, i'll leave
 
-${\textcolor{#d8d8d8}{all\ movies\ •\ whole\ franchise\ •\ absolute\ cinema}}$
+---
 
-${\textcolor{#4f7cff}{✦}}$ ${\textcolor{#ffffff}{STAR\ WARS}}$
+```diff
+! pony town note
+```
 
-${\textcolor{#d8d8d8}{disney\ hurts\ it,\ but\ i\ still\ love\ it}}$
+> not looking for friends / lovers / long-term attachments
 
+> casual communication only
 
+---
 
-${\textcolor{#d7263d}{🦅}}$ ${\textcolor{#ffffff}{thank\ you\ for\ reading\ ♡}}$ ${\textcolor{#4f7cff}{🦅}}$
+```diff
+! what upsets me most
+```
 
+> people who hide things
 
+> collect resentment
 
-<img width="2408" height="3348" alt="5eb0d437c62ab8eb9adc5726ba3efbf8 (1)" src="https://github.com/user-attachments/assets/bf16e857-2f8f-43a3-8a5c-f9c006a254bd" />
+> never speak openly
+
+---
+
+<div align="center">
+
+━━━━━━━━━━ ★ ━━━━━━━━━━
+
+</div>
+
+<p align="center">
+<img width="735" height="245" alt="23ebfde4cd036fdd72a2fe8e0204c514" src="https://github.com/user-attachments/assets/fdbe549e-8a0a-4fa9-8426-a90463698944" />
+
+</p>
+
+## ✦ MAIN FANDOMS ✦
+
+### ⚔ A SONG OF ICE AND FIRE
+
+```yaml
+books: all
+adaptations: all
+versions: all
+```
+
+> favorite universe.
+>
+> always will be.
+
+---
+
+### ★ THE BOYS
+
+```yaml
+comics: yes
+adaptation: yes
+gen_v: no
+```
+
+---
+
+### ✦ MARVEL
+
+```yaml
+comics: yes
+mcu: yes
+always_come_back: true
+```
+
+---
+
+### ⚠ SCREAM
+
+```yaml
+movies: all
+franchise: whole
+status: absolute cinema
+```
+
+---
+
+### ☆ STAR WARS
+
+```yaml
+disney: hurts_it
+love_it: still_yeah
+```
+
+---
+
+<div align="center">
+
+╔══════════════ 🦅 ══════════════╗
+
+### GOD BLESS BRIGHTFLAMED
+
+★ thank you for reading ⋆ ★
+
+╚══════════════ 🦅 ══════════════╝
+
+</div>
+
+---
+<p align="center">
+<img width="498" height="211" alt="1422e181b210d76a4211b32e47d8ce61" src="https://github.com/user-attachments/assets/52836d2a-0b48-4b1e-9ddb-730f62554b2c" />
+
