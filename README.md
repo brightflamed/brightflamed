@@ -1,15 +1,15 @@
 <div align="center">
 
 
-# ${\textcolor{#d7263d}{🦅═══}}$ ${\textcolor{#ffffff}{𝒋𝒂𝒎𝒊𝒆}}$ ${\textcolor{#4f7cff}{═══🦅}}$
+# ${\textcolor{#d7263d}{🦅═══}}$ ${\textcolor{#ffffff}{𝙅𝘼𝙈𝙄𝙀}}$ ${\textcolor{#4f7cff}{═══🦅}}$
 
 ### ${\textcolor{#d7263d}{brightflame}}$ ${\textcolor{#ffffff}{/\ }}$ ${\textcolor{#4f7cff}{snowghost}}$
 
 ${\textcolor{#d7263d}{❤️🦅✨}}$
-${\textcolor{#ffffff}{there's\ something\ about\ me\ that\ may\ push\ people\ away}}$
+${\textcolor{#ffc6c6}{there's\ something\ about\ me\ that\ may\ push\ people\ away}}$
 ${\textcolor{#4f7cff}{✨🦅💙}}$
 
-${\textcolor{#ffffff}{i'm\ (not)\ perfect.\ i\ don't\ pretend\ to\ be.}}$
+${\textcolor{#c6daff}{i'm\ (not)\ perfect.\ i\ don't\ pretend\ to\ be.}}$
 
 
 </div>
@@ -28,14 +28,14 @@ ${\textcolor{#ffffff}{i'm\ (not)\ perfect.\ i\ don't\ pretend\ to\ be.}}$
 
 🦅━━━━━━━━━━━━❤️✨🤍✨💙━━━━━━━━━━━━🦅
 
-# ${\textcolor{#d7263d}{🦅❤️}}$ ${\textcolor{#ffffff}{FIELD\ NOTES}}$ ${\textcolor{#4f7cff}{💙🦅}}$
+# ${\textcolor{#d7263d}{🦅❤️}}$ ${\textcolor{#ffffff}{BEFORE\ INTERACTION}}$ ${\textcolor{#4f7cff}{💙🦅}}$
 
 ✨️˚₊‧⁺˖✮————–✮˖⁺‧₊˚✨️
 
 
 ```txt
 ┌──────────────────────────────────────────────┐
-│              ☆  PERSONAL FILE   ☆              
+│              ☆  ABOUT ME   ☆              
 └──────────────────────────────────────────────┘
 ```
 </div>
@@ -44,18 +44,22 @@ ${\textcolor{#ffffff}{i'm\ (not)\ perfect.\ i\ don't\ pretend\ to\ be.}}$
 ${\textcolor{#d7263d}{❤️}}$
 ${\textcolor{#ffffff}{i\ speak\ english\ (american),\ russian,\ italian.}}$
 
+
+
 ${\textcolor{#4f7cff}{💙}}$
-${\textcolor{#ffffff}{my\ main\ fandoms\ are\ asoiaf,\ the\ boys,\ marvel,}}$
-
-${\textcolor{#ffffff}{the\ hunger\ games,\ and\ slasher\ movies\ from\ the\ 90s\ and\ 2000s.}}$
-
-<br>
-
-${\textcolor{#d7263d}{🦅}}$
-${\textcolor{#ffffff}{my\ favorite\ book\ is\ "wuthering\ heights".}}$
+${\textcolor{#ffffff}{my\ main\ fandoms\ are\ asoiaf,\ the\ boys,\ marvel.}}$
 
 ${\textcolor{#4f7cff}{✨}}$
 ${\textcolor{#ffffff}{i\ always\ come\ back\ to\ it\ sooner\ or\ later.}}$
+
+
+
+${\textcolor{#d7263d}{🦅}}$
+${\textcolor{#ffffff}{i\ often\ afk,\ pls\ w2i.}}$
+
+
+
+
 
 ---
 
@@ -66,14 +70,14 @@ ${\textcolor{#ffffff}{i\ always\ come\ back\ to\ it\ sooner\ or\ later.}}$
 
 ```txt
 ┌──────────────────────────────────────────────┐
-│      ★       COMMUNICATION LOG    ★            
+│      ★       COMMUNICATION    ★            
 └──────────────────────────────────────────────┘
 ```
 </div>
 
 
 ${\textcolor{#4f7cff}{💙}}$
-${\textcolor{#ffffff}{well,\ i\ don't\ mind\ chatting\ (c\ +h)\ freely\ btw\.}}$
+${\textcolor{#ffffff}{well,\ i\ don't\ mind\ chatting\ (c\ +\ h\ freely\ btw)\.}}$
 
 ${\textcolor{#ffffff}{but\ honestly,\ i'd\ rather\ sit\ together\ in\ silence.}}$
 
@@ -107,11 +111,10 @@ ${\textcolor{#d7263d}{❤️}}$
 ${\textcolor{#ffffff}{however...}}$
 
 ${\textcolor{#4f7cff}{💙}}$
-${\textcolor{#ffffff}{compliments\ are\ ALWAYS\ welcome\ lmao.}}$
+${\textcolor{#ff0000}{compliments\ are\ ALWAYS\ welcome\ lmao.}}$
 
-<br>
 
-${\textcolor{#ffffff}{there's\ probably\ nothing\ i\ love\ more.}}$
+${\textcolor{#ffffff}{there's\ probably\ nothing\ i\ love\ more,,}}$
 
 
 
@@ -127,7 +130,7 @@ ${\textcolor{#ffffff}{there's\ probably\ nothing\ i\ love\ more.}}$
 
 ❤️✨🤍✨💙✨❤️✨🤍✨💙✨❤️
 
-# ${\textcolor{#d7263d}{🦅}}$ ${\textcolor{#ffffff}{thank\ you\ for\ reading\ ♡}}$ ${\textcolor{#4f7cff}{🦅}}$
+# ${\textcolor{#d7263d}{🦅}}$ ${\textcolor{#c6daff}{~\ thank\ you\ for\ reading\ ~}}$ ${\textcolor{#4f7cff}{🦅}}$
 
 ❤️✨🤍✨💙✨❤️✨🤍✨💙✨❤️
 
