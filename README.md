@@ -2,161 +2,81 @@
 
 
 
-╔═══════════════ ✦ ☆ ✦ ═══════════════╗
+${\textcolor{#d7263d}{╔═══════}}$ ${\textcolor{#ffffff}{𝒋𝒂𝒎𝒊𝒆}}$ ${\textcolor{#4f7cff}{═══════╗}}$
 
-  **𝒉𝒊𝒊, 𝒊'𝒎  𝒋𝒂𝒎𝒊𝒆**
+${\textcolor{#ffffff}{brightflame\ /\ snowghost\ /\ etc}}$
 
-  *❤️‍🔥  𝒘𝒆𝒍𝒄𝒐𝒎𝒆  ❤️‍🔥*
+${\textcolor{#d7263d}{❤️‍🔥}}$ ${\textcolor{#ffffff}{there's\ something\ about\ me\ that\ may\ push\ people\ away}}$ ${\textcolor{#4f7cff}{✨️}}$
 
-╚═══════════════ ✦ ☆ ✦ ═══════════════╝
+${\textcolor{#ffffff}{i'm\ not\ perfect.\ i\ don't\ pretend\ to\ be.}}$
 
-      ⋆✧ known as brightflame / snowghost ✧⋆
-         🦅 ❖ ✨️ ❖ ❤️ ❖ ✨️ ❖ 🦅
+${\textcolor{#d7263d}{✦}}$ ${\textcolor{#ffffff}{BEFORE\ INTERACTING}}$ ${\textcolor{#4f7cff}{✦}}$
 
-◈ there is something about me
-   that may push people away.
+${\textcolor{#ffffff}{◈\ 19\ y.o.}}$
 
-◈ i am not perfect.
-   i never claimed to be.
+${\textcolor{#ffffff}{◈\ if\ you're\ under\ 17-18,\ better\ not\ interact}}$
 
-━━━━━━━━━━━ ✨️ ⋆ ❤️‍🔥 ⋆ ✨️ ━━━━━━━━━━━
+${\textcolor{#ffffff}{◈\ often\ afk\ /\ w2i}}$
 
-            ❤️ BEFORE INTERACTING ❤️
+${\textcolor{#ffffff}{◈\ may\ refuse\ communication\ if\ busy}}$
 
-╭─────────────── ◇ ───────────────╮
+${\textcolor{#ffffff}{◈\ c+h\ freely\ if\ no\ dni/dnt}}$
 
-✦ 19 y.o.
+${\textcolor{#ffffff}{◈\ asking\ first\ =\ appreciated\ ♡}}$
 
-✦ if you're under 17–18,
-  interaction may not be the best idea.
+${\textcolor{#d7263d}{✠}}$ ${\textcolor{#ffffff}{RED\ FLAGS}}$ ${\textcolor{#4f7cff}{✠}}$
 
-✦ often afk / w2i.
+${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{darkshipper}}$
 
-✦ sometimes i decline communication
-  when i'm occupied.
+${\textcolor{#d8d8d8}{unhealthy\ dynamics\ are\ often\ more\ interesting\ to\ me}}$
 
-✦ c+h freely if no dni / dnt.
+${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{i\ use\ feminitives}}$
 
-✦ asking first is appreciated ♡
+${\textcolor{#d8d8d8}{doesn't\ automatically\ make\ me\ radfem}}$
 
-╰─────────────── ◇ ───────────────╯
+${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{check\ my\ pairings\ carefully}}$
 
-🦅 ⋆｡°✩ ( ˶ˆᗜˆ˵ ) ✩°｡⋆ 🦅
+${\textcolor{#d8d8d8}{some\ plots\ may\ be\ uncomfortable\ for\ certain\ people}}$
 
-╔══════════════ ❗ RED FLAGS ❗ ══════════════╗
+${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{conflict\ avoidant}}$
 
-❤️‍🔥 DARKSHIPPER
+${\textcolor{#d8d8d8}{if\ you\ drag\ me\ into\ drama,\ i'll\ leave}}$
 
-◞ unhealthy relationships often seem
-   more interesting to me than healthy ones.
+${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{pony\ town\ note}}$
 
-◆════════════════════════════════════◆
+${\textcolor{#ffffff}{not\ looking\ for\ friends\ /\ lovers\ /\ long-term\ attachments}}$
 
-❤️‍🔥 FEMINITIVES USER
+${\textcolor{#d8d8d8}{casual\ communication\ only}}$
 
-◞ does not automatically mean radfem.
+${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{what\ upsets\ me\ most}}$
 
-◆════════════════════════════════════◆
+${\textcolor{#d8d8d8}{people\ who\ hide\ things,\ collect\ resentment,\ and\ never\ speak\ openly}}$
 
-❤️‍🔥 CHECK MY PAIRINGS CAREFULLY
+   ${\textcolor{#4f7cff}{✨️}}$ ${\textcolor{#ffffff}{MAIN\ FANDOMS}}$ ${\textcolor{#d7263d}{❤️‍🔥}}$
 
-◞ some plots and dynamics may be
-   uncomfortable for certain people.
+${\textcolor{#d7263d}{⚔️}}$ ${\textcolor{#ffffff}{A\ SONG\ OF\ ICE\ AND\ FIRE}}$ ${\textcolor{#4f7cff}{⚔️}}$
 
-◆════════════════════════════════════◆
+${\textcolor{#d8d8d8}{all\ books\ •\ all\ adaptations\ •\ all\ versions}}$
 
-❤️‍🔥 CONFLICT-AVOIDANT
+${\textcolor{#ffffff}{my\ favorite\ universe\ and\ always\ will\ be}}$
 
-◞ if you try to drag me into drama,
-   i will most likely leave.
+${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{THE\ BOYS}}$
 
-◆════════════════════════════════════◆
+${\textcolor{#d8d8d8}{comics\ •\ adaptation\ •\ not\ gen\ v}}$
 
-❤️‍🔥 PONY TOWN NOTE
+${\textcolor{#4f7cff}{⭐}}$ ${\textcolor{#ffffff}{MARVEL}}$
 
-◞ not looking for friends.
-◞ not looking for lovers.
-◞ not looking for long-term attachments.
+${\textcolor{#d8d8d8}{comics\ •\ mcu\ •\ always\ come\ back}}$
 
-      casual communication only.
+${\textcolor{#d7263d}{🔪}}$ ${\textcolor{#ffffff}{SCREAM}}$
 
-◆════════════════════════════════════◆
+${\textcolor{#d8d8d8}{all\ movies\ •\ whole\ franchise\ •\ absolute\ cinema}}$
 
-❤️‍🔥 WHAT UPSETS ME MOST
+${\textcolor{#4f7cff}{✦}}$ ${\textcolor{#ffffff}{STAR\ WARS}}$
 
-◞ people who hide things,
-   accumulate resentment,
-   and never say what is wrong.
+${\textcolor{#d8d8d8}{disney\ hurts\ it,\ but\ i\ still\ love\ it}}$
 
-╚════════════════════════════════════╝
-
-━━━━━━━━━━━ ❤️ ⋆ ❄️ ⋆ ❤️ ━━━━━━━━━━━
-
-            ✨ MAIN FANDOMS ✨
-
-╔══════ ❤️‍🔥 SPECIAL PLACE ❤️‍🔥 ══════╗
-
-          ⚔️ A SONG OF ICE AND FIRE ⚔️
-
-     all books • all adaptations
-            all timelines
-
-    this universe has my heart.
-      it always will.
-
-╚══════════════════════════════════╝
-
-◆════════════════════════════════════◆
-
-🩸 THE BOYS
-
-◞ comics
-◞ adaptation
-
-✘ not gen v
-
-◆════════════════════════════════════◆
-
-❤️ MARVEL
-
-◞ comics
-◞ mcu
-
-not my main fandom anymore,
-
-        ✦ but i always return ✦
-
-◆════════════════════════════════════◆
-
-🔪 SCREAM
-
-◞ every movie
-◞ the entire franchise
-
-even after part iv.
-
-        ★ absolute cinema ★
-
-◆════════════════════════════════════◆
-
-⭐ STAR WARS
-
-what disney is doing to it
-slowly breaks my heart.
-
-and yet—
-
-      ❤️ i love it dearly ❤️
-
-◆════════════════════════════════════◆
-
-🦅 ✨️ ⋆｡°✩ ᓚ₍ ^. .^₎ ✩°｡⋆ ✨️ 🦅
-
-      ❤️ ◇ 🤍 ◇ 💙 ◇ 🤍 ◇ ❤️
-
-          thank you for reading ♡
-
-      ❤️ ◇ 🤍 ◇ 💙 ◇ 🤍 ◇ ❤️
+${\textcolor{#d7263d}{🦅}}$ ${\textcolor{#ffffff}{thank\ you\ for\ reading\ ♡}}$ ${\textcolor{#4f7cff}{🦅}}$
 
 
 <img width="2408" height="3348" alt="5eb0d437c62ab8eb9adc5726ba3efbf8 (1)" src="https://github.com/user-attachments/assets/bf16e857-2f8f-43a3-8a5c-f9c006a254bd" />
