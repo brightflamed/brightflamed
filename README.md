@@ -3,7 +3,7 @@
 <img width="736" height="511" alt="4737482ca1e525162683fe804ac0086c" src="https://github.com/user-attachments/assets/67e7cd95-bd24-42f9-886e-247d6c479272" />
 
 
-# ${\textcolor{#d7263d}{🦅❤️═════}}$ ${\textcolor{#ffffff}{𝒋𝒂𝒎𝒊𝒆}}$ ${\textcolor{#4f7cff}{═════💙🦅}}$
+# ${\textcolor{#d7263d}{🦅❤️═══}}$ ${\textcolor{#ffffff}{𝒋𝒂𝒎𝒊𝒆}}$ ${\textcolor{#4f7cff}{═══💙🦅}}$
 
 ### ${\textcolor{#d7263d}{brightflame}}$ ${\textcolor{#ffffff}{/\ }}$ ${\textcolor{#4f7cff}{snowghost}}$
 
