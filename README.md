@@ -117,25 +117,25 @@ ${\textcolor{#d8d8d8}{people\ who\ hide\ things,\ collect\ resentment,\ and\ nev
 
 ${\textcolor{#d8d8d8}{all\ books\ •\ all\ adaptations\ •\ all\ versions}}$
 
-${\textcolor{#ffffff}{my\ favorite\ universe\ and\ always\ will\ be}}$
+${\textcolor{#ffffff}{my\ favorite\ universe\ and\ always\ will\ be ♡}}$
 
 ---
 
 ### ${\textcolor{#d7263d}{❤️\ THE\ BOYS}}$
 
-${\textcolor{#d8d8d8}{comics\ •\ adaptation\ •\ not\ gen\ v}}$
+${\textcolor{#d8d8d8}{comics\ •\ adaptation\ •\ not\ gen\ v ❌️}}$
 
 ---
 
 ### ${\textcolor{#4f7cff}{💙\ MARVEL}}$
 
-${\textcolor{#d8d8d8}{comics\ •\ mcu\ •\ always\ come\ back}}$
+${\textcolor{#d8d8d8}{comics\ •\ mcu}}$
 
 ---
 
 ### ${\textcolor{#d7263d}{❤️\ SCREAM}}$
 
-${\textcolor{#d8d8d8}{all\ movies\ •\ whole\ franchise\ •\ absolute\ cinema}}$
+${\textcolor{#d8d8d8}{all\ movies\ •\ whole\ franchise\ (absolute\ cinema)}}$
 
 ---
 
