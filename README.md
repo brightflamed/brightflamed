@@ -52,7 +52,7 @@ ${\textcolor{#d7263d}{🩸}}$ ${\textcolor{#ffffff}{what\ upsets\ me\ most}}$
 
 ${\textcolor{#d8d8d8}{people\ who\ hide\ things,\ collect\ resentment,\ and\ never\ speak\ openly}}$
 
-   ${\textcolor{#4f7cff}{✨️}}$ ${\textcolor{#ffffff}{MAIN\ FANDOMS}}$ ${\textcolor{#d7263d}{❤️‍🔥}}$
+${\textcolor{#4f7cff}{✨️}}$ ${\textcolor{#ffffff}{MAIN\ FANDOMS}}$ ${\textcolor{#d7263d}{❤️‍🔥}}$
 
 ${\textcolor{#d7263d}{⚔️}}$ ${\textcolor{#ffffff}{A\ SONG\ OF\ ICE\ AND\ FIRE}}$ ${\textcolor{#4f7cff}{⚔️}}$
 
@@ -76,7 +76,10 @@ ${\textcolor{#4f7cff}{✦}}$ ${\textcolor{#ffffff}{STAR\ WARS}}$
 
 ${\textcolor{#d8d8d8}{disney\ hurts\ it,\ but\ i\ still\ love\ it}}$
 
+
+
 ${\textcolor{#d7263d}{🦅}}$ ${\textcolor{#ffffff}{thank\ you\ for\ reading\ ♡}}$ ${\textcolor{#4f7cff}{🦅}}$
+
 
 
 <img width="2408" height="3348" alt="5eb0d437c62ab8eb9adc5726ba3efbf8 (1)" src="https://github.com/user-attachments/assets/bf16e857-2f8f-43a3-8a5c-f9c006a254bd" />
