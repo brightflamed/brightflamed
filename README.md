@@ -1,202 +1,164 @@
+<div align="center">
+
+<img width="736" height="511" alt="4737482ca1e525162683fe804ac0086c" src="https://github.com/user-attachments/assets/67e7cd95-bd24-42f9-886e-247d6c479272" />
+
+
+# ${\textcolor{#d7263d}{🦅❤️══════}}$ ${\textcolor{#ffffff}{𝒋𝒂𝒎𝒊𝒆}}$ ${\textcolor{#4f7cff}{══════💙🦅}}$
+
+### ${\textcolor{#d7263d}{brightflame}}$ ${\textcolor{#ffffff}{/\ }}$ ${\textcolor{#4f7cff}{snowghost}}$
+
+${\textcolor{#d7263d}{❤️🦅✨}}$
+${\textcolor{#ffffff}{there's\ something\ about\ me\ that\ may\ push\ people\ away}}$
+${\textcolor{#4f7cff}{✨🦅💙}}$
+
+${\textcolor{#ffffff}{i'm\ (not)\ perfect.\ i\ don't\ pretend\ to\ be.}}$
+
+❤️🤍💙🦅✨❤️🤍💙🦅✨❤️🤍💙🦅✨
+
+</div>
+
+---
+
+<div align="center">
+
+# ${\textcolor{#d7263d}{🦅❤️}}$ ${\textcolor{#ffffff}{BEFORE\ INTERACTING}}$ ${\textcolor{#4f7cff}{💙🦅}}$
+
+</div>
+
+${\textcolor{#ffffff}{◈\ 19\ y.o.}}$
+
+${\textcolor{#d7263d}{❤️}}$ ${\textcolor{#ffffff}{if\ you're\ under\ 17-18,\ better\ not\ interact}}$
+
+${\textcolor{#4f7cff}{💙}}$ ${\textcolor{#ffffff}{often\ afk\ /\ w2i}}$
+
+${\textcolor{#d7263d}{❤️}}$ ${\textcolor{#ffffff}{may\ refuse\ communication\ if\ busy}}$
+
+${\textcolor{#4f7cff}{💙}}$ ${\textcolor{#ffffff}{c+h\ freely\ if\ no\ dni/dnt}}$
+
+${\textcolor{#ffffff}{🦅\ asking\ first\ =\ appreciated\ ♡}}$
+
+---
+
+<div align="center">
+
+❤️🤍💙🦅✨❤️🤍💙🦅✨❤️🤍💙🦅✨
+
+<img width="720" height="720" alt="f894a6563d7b64b17a26562d0e1e1632" src="https://github.com/user-attachments/assets/74a37f8f-7f48-4004-bed2-b6414fd4ea44" />
+
+
+❤️🤍💙🦅✨❤️🤍💙🦅✨❤️🤍💙🦅✨
+
+</div>
+
+---
+
+<div align="center">
+
+# ${\textcolor{#d7263d}{❤️🦅}}$ ${\textcolor{#ffffff}{RED\ FLAGS}}$ ${\textcolor{#4f7cff}{🦅💙}}$
+
+</div>
+
+### ${\textcolor{#d7263d}{❤️\ darkshipper}}$
+
+${\textcolor{#d8d8d8}{unhealthy\ dynamics\ are\ often\ more\ interesting\ to\ me}}$
+
+---
+
+### ${\textcolor{#4f7cff}{💙\ i\ use\ feminitives}}$
+
+${\textcolor{#d8d8d8}{doesn't\ automatically\ make\ me\ radfem}}$
+
+---
+
+### ${\textcolor{#d7263d}{❤️\ check\ my\ fandoms\ carefully}}$
+
+${\textcolor{#d8d8d8}{some\ plots\ may\ be\ uncomfortable\ for\ certain\ people}}$
+
+---
+
+### ${\textcolor{#4f7cff}{💙\ conflict\ avoidant}}$
+
+${\textcolor{#d8d8d8}{if\ you\ drag\ me\ into\ drama,\ i'll\ leave}}$
+
+---
+
+### ${\textcolor{#d7263d}{❤️\ pony\ town\ note}}$
+
+${\textcolor{#ffffff}{not\ looking\ for\ friends\ /\ lovers\ /\ long-term\ attachments}}$
+
+${\textcolor{#d8d8d8}{casual\ communication\ only}}$
+
+---
+
+### ${\textcolor{#4f7cff}{💙\ what\ upsets\ me\ most}}$
+
+${\textcolor{#d8d8d8}{people\ who\ hide\ things,\ collect\ resentment,\ and\ never\ speak\ openly}}$
+
+---
+
+<div align="center">
+
+🦅━━━━━━━━━━━━❤️✨💙━━━━━━━━━━━━🦅
+
+</div>
+
 <p align="center">
-<img width="498" height="211" alt="6a939207fdcf670aadb50bfc7b28bc46" src="https://github.com/user-attachments/assets/2d082934-1773-427a-ba89-4971a426d49e" />
+<img width="2424" height="1388" alt="20260607_134458" src="https://github.com/user-attachments/assets/3be10866-955c-4d91-8e64-12af09f0c2da" />
 
 </p>
 
 <div align="center">
 
-# ╔══════════════ ★ ══════════════╗
-
-### ✨️ 𝒋𝒂𝒎𝒊𝒆 ✨️
-
-##### brightflamed / snowghost / etc
-
-╚══════════════ ★ ══════════════╝
+# ${\textcolor{#4f7cff}{💙🦅}}$ ${\textcolor{#ffffff}{MAIN\ FANDOMS}}$ ${\textcolor{#d7263d}{🦅❤️}}$
 
 </div>
+
+### ${\textcolor{#d7263d}{⚔️\ A\ SONG\ OF\ ICE\ AND\ FIRE}}$
+
+${\textcolor{#d8d8d8}{all\ books\ •\ all\ adaptations\ •\ all\ versions}}$
+
+${\textcolor{#ffffff}{my\ favorite\ universe\ and\ always\ will\ be}}$
+
+---
+
+### ${\textcolor{#d7263d}{❤️\ THE\ BOYS}}$
+
+${\textcolor{#d8d8d8}{comics\ •\ adaptation\ •\ not\ gen\ v}}$
+
+---
+
+### ${\textcolor{#4f7cff}{💙\ MARVEL}}$
+
+${\textcolor{#d8d8d8}{comics\ •\ mcu\ •\ always\ come\ back}}$
+
+---
+
+### ${\textcolor{#d7263d}{❤️\ SCREAM}}$
+
+${\textcolor{#d8d8d8}{all\ movies\ •\ whole\ franchise\ •\ absolute\ cinema}}$
+
+---
+
+### ${\textcolor{#4f7cff}{💙\ STAR\ WARS}}$
+
+${\textcolor{#d8d8d8}{disney\ hurts\ it,\ but\ i\ still\ love\ it}}$
+
+---
 
 <div align="center">
-
-✦ 𝖙𝖍𝖊𝖗𝖊'𝖘 𝖘𝖔𝖒𝖊𝖙𝖍𝖎𝖓𝖌 𝖆𝖇𝖔𝖚𝖙 𝖒𝖊 𝖙𝖍𝖆𝖙 𝖒𝖆𝖞 𝖕𝖚𝖘𝖍 𝖕𝖊𝖔𝖕𝖑𝖊 𝖆𝖜𝖆𝖞 ✦
-
-*i'm (not) perfect. i don't pretend to be.*
+  <img width="2408" height="3348" alt="5eb0d437c62ab8eb9adc5726ba3efbf8 (1)" src="https://github.com/user-attachments/assets/b8ef8cd5-0784-4ecc-9968-19c671fa3a10" />
 
 </div>
-
----
-
-<div align="center">
-
-★ ☆ ★ ONE AND ONLY ★ ☆ ★
-
-</div>
-
-## 🦅 BEFORE INTERACTING
-
-```diff
-+ AGE :: 19
-+ STATUS :: often afk / w2i
-+ CONTACT :: c+h freely if no dni/dnt
-+ ASKING FIRST :: appreciated ⋆
-```
-
-```fix
-INTERACTION NOTICE
-
-if you're under 17-18,
-better not interact
-```
-
-```yaml
-availability:
-  may refuse communication if busy
-```
-
----
-
-<p align="center">
-<img src="1000036646.gif" width="100%">
-</p>
-
-<div align="center">
-
-# ❗️ WARNING FILE ❗️
-
-</div>
-
-```diff
-! darkshipper
-```
-
-> unhealthy dynamics are often more interesting to me
-
----
-
-```diff
-! i use feminitives
-```
-
-> doesn't automatically make me radfem
-
----
-
-```diff
-! check my pairings carefully
-```
-
-> some plots may be uncomfortable for certain people
-
----
-
-```diff
-! conflict avoidant
-```
-
-> if you drag me into drama, i'll leave
-
----
-
-```diff
-! pony town note
-```
-
-> not looking for friends / lovers / long-term attachments
-
-> casual communication only
-
----
-
-```diff
-! what upsets me most
-```
-
-> people who hide things
-
-> collect resentment
-
-> never speak openly
 
 ---
 
 <div align="center">
 
-━━━━━━━━━━ ★ ━━━━━━━━━━
+❤️🤍💙🦅✨❤️🤍💙🦅✨❤️🤍💙🦅✨
+
+# ${\textcolor{#d7263d}{🦅❤️}}$ ${\textcolor{#ffffff}{thank\ you\ for\ reading\ ♡}}$ ${\textcolor{#4f7cff}{💙🦅}}$
+
+❤️🤍💙🦅✨❤️🤍💙🦅✨❤️🤍💙🦅✨
 
 </div>
-
-<p align="center">
-<img width="735" height="245" alt="23ebfde4cd036fdd72a2fe8e0204c514" src="https://github.com/user-attachments/assets/fdbe549e-8a0a-4fa9-8426-a90463698944" />
-
-</p>
-
-## ✦ MAIN FANDOMS ✦
-
-### ⚔ A SONG OF ICE AND FIRE
-
-```yaml
-books: all
-adaptations: all
-versions: all
-```
-
-> favorite universe.
->
-> always will be.
-
----
-
-### ★ THE BOYS
-
-```yaml
-comics: yes
-adaptation: yes
-gen_v: no
-```
-
----
-
-### ✦ MARVEL
-
-```yaml
-comics: yes
-mcu: yes
-always_come_back: true
-```
-
----
-
-### ⚠ SCREAM
-
-```yaml
-movies: all
-franchise: whole
-status: absolute cinema
-```
-
----
-
-### ☆ STAR WARS
-
-```yaml
-disney: hurts_it
-love_it: still_yeah
-```
-
----
-
-<div align="center">
-
-╔══════════════ 🦅 ══════════════╗
-
-### GOD BLESS BRIGHTFLAMED
-
-★ thank you for reading ⋆ ★
-
-╚══════════════ 🦅 ══════════════╝
-
-</div>
-
----
-<p align="center">
-<img width="498" height="211" alt="1422e181b210d76a4211b32e47d8ce61" src="https://github.com/user-attachments/assets/52836d2a-0b48-4b1e-9ddb-730f62554b2c" />
 
