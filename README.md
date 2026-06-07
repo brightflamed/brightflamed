@@ -141,7 +141,7 @@ ${\textcolor{#d8d8d8}{all\ movies\ •\ whole\ franchise\ (absolute\ cinema)}}$
 
 ### ${\textcolor{#4f7cff}{💙\ STAR\ WARS}}$
 
-${\textcolor{#d8d8d8}{disney\ hurts\ it,\ but\ i\ still\ love\ it}}$
+${\textcolor{#d8d8d8}{disney\ killed\ it,\ but\ i\ still\ love\ this\ universe}}$
 
 ---
 
