@@ -30,7 +30,7 @@ ${\textcolor{#ffffff}{i'm\ (not)\ perfect.\ i\ don't\ pretend\ to\ be.}}$
 
 # ${\textcolor{#d7263d}{🦅❤️}}$ ${\textcolor{#ffffff}{FIELD\ NOTES}}$ ${\textcolor{#4f7cff}{💙🦅}}$
 
-❤️🤍💙✨❤️🤍💙✨❤️🤍💙✨
+✨️˚₊‧⁺˖✮————–✮˖⁺‧₊˚✨️
 
 
 ```txt
@@ -61,7 +61,7 @@ ${\textcolor{#ffffff}{i\ always\ come\ back\ to\ it\ sooner\ or\ later.}}$
 
 <div align="center">
 
-❤️✨🤍✨💙✨❤️✨🤍✨💙✨❤️
+✨️˚₊‧⁺˖✮————–✮˖⁺‧₊˚✨️
 
 
 ```txt
@@ -92,7 +92,7 @@ ${\textcolor{#ffffff}{your\ presence\ is\ enough.}}$
 
 <div align="center">
 
-🦅❤️🤍💙✨❤️🤍💙✨❤️🤍💙🦅
+✨️˚₊‧⁺˖✮————–✮˖⁺‧₊˚✨️
 
 
 ```txt
@@ -125,11 +125,11 @@ ${\textcolor{#ffffff}{there's\ probably\ nothing\ i\ love\ more.}}$
 
 <div align="center">
 
-❤️🤍💙🦅✨❤️🤍💙🦅✨❤️🤍💙🦅✨
+❤️✨🤍✨💙✨❤️✨🤍✨💙✨❤️
 
-# ${\textcolor{#d7263d}{🦅❤️}}$ ${\textcolor{#ffffff}{thank\ you\ for\ reading\ ♡}}$ ${\textcolor{#4f7cff}{💙🦅}}$
+# ${\textcolor{#d7263d}{🦅}}$ ${\textcolor{#ffffff}{thank\ you\ for\ reading\ ♡}}$ ${\textcolor{#4f7cff}{🦅}}$
 
-❤️🤍💙🦅✨❤️🤍💙🦅✨❤️🤍💙🦅✨
+❤️✨🤍✨💙✨❤️✨🤍✨💙✨❤️
 
 </div>
 
