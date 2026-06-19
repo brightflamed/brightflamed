@@ -1,9 +1,9 @@
 <div align="center">
 
 
-# ${\textcolor{#d7263d}{🦅═══}}$ ${\textcolor{#ffffff}{𝙅𝘼𝙈𝙄𝙀}}$ ${\textcolor{#4f7cff}{═══🦅}}$
+# ${\textcolor{#d7263d}{🦅═══}}$ ${\textcolor{#fff2e9}{𝙅𝘼𝙈𝙄𝙀}}$ ${\textcolor{#4f7cff}{═══🦅}}$
 
-### ${\textcolor{#d7263d}{brightflame}}$ ${\textcolor{#ffffff}{/\ }}$ ${\textcolor{#4f7cff}{snowghost}}$
+### ${\textcolor{#d7263d}{brightflame}}$ ${\textcolor{#fff2e9}{/\ }}$ ${\textcolor{#4f7cff}{snowghost}}$
 
 ${\textcolor{#d7263d}{❤️🦅✨}}$
 ${\textcolor{#ffc6c6}{there's\ something\ about\ me\ that\ may\ push\ people\ away}}$
@@ -42,20 +42,20 @@ ${\textcolor{#c6daff}{i'm\ (not)\ perfect.\ i\ don't\ pretend\ to\ be.}}$
 
 
 ${\textcolor{#d7263d}{❤️}}$
-${\textcolor{#ffffff}{i\ speak\ english\ (american),\ russian,\ italian.}}$
+${\textcolor{#fff2e9}{i\ speak\ english\ (american),\ russian,\ italian.}}$
 
 
 
 ${\textcolor{#4f7cff}{💙}}$
-${\textcolor{#ffffff}{my\ main\ fandoms\ are\ asoiaf,\ the\ boys,\ marvel.}}$
+${\textcolor{#fff2e9}{my\ main\ fandoms\ are\ asoiaf,\ the\ boys,\ marvel.}}$
 
 ${\textcolor{#4f7cff}{✨}}$
-${\textcolor{#ffffff}{i\ always\ come\ back\ to\ it\ sooner\ or\ later.}}$
+${\textcolor{#fff2e9}{i\ always\ come\ back\ to\ it\ sooner\ or\ later.}}$
 
 
 
 ${\textcolor{#d7263d}{🦅}}$
-${\textcolor{#ffffff}{i\ often\ afk,\ pls\ w2i.}}$
+${\textcolor{#fff2e9}{i\ often\ afk,\ pls\ w2i.}}$
 
 
 
@@ -77,20 +77,43 @@ ${\textcolor{#ffffff}{i\ often\ afk,\ pls\ w2i.}}$
 
 
 ${\textcolor{#4f7cff}{💙}}$
-${\textcolor{#ffffff}{well,\ i\ don't\ mind\ chatting\ (c\ +\ h\ freely\ btw)\.}}$
+${\textcolor{#fff2e9}{well,\ i\ don't\ mind\ chatting\ (c\ +\ h\ freely\ btw)\.}}$
 
-${\textcolor{#ffffff}{but\ honestly,\ i'd\ rather\ sit\ together\ in\ silence.}}$
+${\textcolor{#fff2e9}{but\ honestly,\ i'd\ rather\ sit\ together\ in\ silence.}}$
 
 ${\textcolor{#d7263d}{❤️}}$
-${\textcolor{#ffffff}{that\ kind\ of\ company\ means\ much\ more\ to\ me.}}$
+${\textcolor{#fff2e9}{that\ kind\ of\ company\ means\ much\ more\ to\ me.}}$
 
 <br>
 
-${\textcolor{#ffffff}{you\ don't\ have\ to\ entertain\ me.}}$
+${\textcolor{#fff2e9}{you\ don't\ have\ to\ entertain\ me.}}$
 
-${\textcolor{#ffffff}{you\ don't\ have\ to\ keep\ the\ conversation\ going.}}$
+${\textcolor{#fff2e9}{you\ don't\ have\ to\ keep\ the\ conversation\ going.}}$
 
-${\textcolor{#ffffff}{your\ presence\ is\ enough.}}$
+${\textcolor{#fff2e9}{your\ presence\ is\ enough.}}$
+
+---
+
+<div align="center">
+
+✨️˚₊‧⁺˖✮————–✮˖⁺‧₊˚✨️
+
+
+```txt
+┌──────────────────────────────────────────────┐
+│      ☆         IMPORTANT (lmao)       ☆          
+└──────────────────────────────────────────────┘
+```
+</div>
+
+${\textcolor{#4f7cff}{🆘️}}$
+${\textcolor{#8787ff}{my\ son\ thinks\ it\ should\ be\ here:}}$
+
+<div align="center">
+  <img width="1024" height="1024" alt="IMG_20260619_215902_389" src="https://github.com/user-attachments/assets/1fc6bd94-c0cc-4cc2-8eb1-ef26fdefba7c" />
+
+
+</div>
 
 ---
 
@@ -108,13 +131,13 @@ ${\textcolor{#ffffff}{your\ presence\ is\ enough.}}$
 
 
 ${\textcolor{#d7263d}{❤️}}$
-${\textcolor{#ffffff}{however...}}$
+${\textcolor{#fff2e9}{however...}}$
 
 ${\textcolor{#4f7cff}{💙}}$
 ${\textcolor{#ff0000}{compliments\ are\ ALWAYS\ welcome\ lmao.}}$
 
 
-${\textcolor{#ffffff}{there's\ probably\ nothing\ i\ love\ more,,}}$
+${\textcolor{#fff2e9}{there's\ probably\ nothing\ i\ love\ more,,}}$
 
 
 
