@@ -101,29 +101,6 @@ ${\textcolor{#fff2e9}{your\ presence\ is\ enough.}}$
 
 ```txt
 ┌──────────────────────────────────────────────┐
-│      ☆         IMPORTANT (lmao)       ☆          
-└──────────────────────────────────────────────┘
-```
-</div>
-
-${\textcolor{#4f7cff}{🆘️}}$
-${\textcolor{#8787ff}{my\ son\ thinks\ it\ should\ be\ here:}}$
-
-<div align="center">
-  <img width="1024" height="1024" alt="IMG_20260619_215902_389" src="https://github.com/user-attachments/assets/1fc6bd94-c0cc-4cc2-8eb1-ef26fdefba7c" />
-
-
-</div>
-
----
-
-<div align="center">
-
-✨️˚₊‧⁺˖✮————–✮˖⁺‧₊˚✨️
-
-
-```txt
-┌──────────────────────────────────────────────┐
 │      ☆          FINAL NOTICE        ☆          
 └──────────────────────────────────────────────┘
 ```
