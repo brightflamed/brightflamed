@@ -1,138 +1,97 @@
 <div align="center">
 
+# ${\textcolor{#e18b49}{✮}}$ ${\textcolor{#f4ddb2}{𝐉𝐀𝐌𝐈𝐄}}$ ${\textcolor{#e18b49}{✮}}$ 
 
-# ${\textcolor{#d7263d}{🦅═══}}$ ${\textcolor{#fff2e9}{𝙅𝘼𝙈𝙄𝙀}}$ ${\textcolor{#4f7cff}{═══🦅}}$
+### ${\textcolor{#8faed9}{𝓼𝓷𝓸𝔀𝓰𝓱𝓸𝓼𝓽}}$ ${\textcolor{#f4ddb2}{✦}}$ ${\textcolor{#d98a8a}{𝓫𝓻𝓲𝓰𝓱𝓽𝓯𝓵𝓪𝓶𝓮}}$
 
-### ${\textcolor{#d7263d}{brightflame}}$ ${\textcolor{#fff2e9}{/\ }}$ ${\textcolor{#4f7cff}{snowghost}}$
+#### ${\textcolor{#d98a8a}{♡}}$ ${\textcolor{#f4ddb2}{𝑜𝓃𝑒\ 𝒶𝓃𝒹\ 𝑜𝓃𝓁𝓎!}}$ ${\textcolor{#8faed9}{♡}}$
 
-${\textcolor{#d7263d}{❤️🦅✨}}$
-${\textcolor{#ffc6c6}{there's\ something\ about\ me\ that\ may\ push\ people\ away}}$
-${\textcolor{#4f7cff}{✨🦅💙}}$
-
-${\textcolor{#c6daff}{i'm\ (not)\ perfect.\ i\ don't\ pretend\ to\ be.}}$
-
-
-</div>
-
-
-
-<div align="center">
-
-<img width="736" height="511" alt="4737482ca1e525162683fe804ac0086c" src="https://github.com/user-attachments/assets/67e7cd95-bd24-42f9-886e-247d6c479272" />
-  
-</div>
-  
-
-
-<div align="center">
-
-🦅━━━━━━━━━━━━❤️✨🤍✨💙━━━━━━━━━━━━🦅
-
-# ${\textcolor{#d7263d}{🦅❤️}}$ ${\textcolor{#ffffff}{BEFORE\ INTERACTION}}$ ${\textcolor{#4f7cff}{💙🦅}}$
-
-✨️˚₊‧⁺˖✮————–✮˖⁺‧₊˚✨️
-
-
-```txt
-┌──────────────────────────────────────────────┐
-│              ☆  ABOUT ME   ☆              
-└──────────────────────────────────────────────┘
-```
-</div>
-
-
-${\textcolor{#d7263d}{❤️}}$
-${\textcolor{#fff2e9}{i\ speak\ english\ (american),\ russian,\ italian.}}$
-
-
-
-${\textcolor{#4f7cff}{💙}}$
-${\textcolor{#fff2e9}{my\ main\ fandoms\ are\ asoiaf,\ the\ boys,\ marvel.}}$
-
-${\textcolor{#4f7cff}{✨}}$
-${\textcolor{#fff2e9}{i\ always\ come\ back\ to\ it\ sooner\ or\ later.}}$
-
-
-
-${\textcolor{#d7263d}{🦅}}$
-${\textcolor{#fff2e9}{i\ often\ afk,\ pls\ w2i.}}$
-
-
-
-
-
----
-
-<div align="center">
-
-✨️˚₊‧⁺˖✮————–✮˖⁺‧₊˚✨️
-
-
-```txt
-┌──────────────────────────────────────────────┐
-│      ★       COMMUNICATION    ★            
-└──────────────────────────────────────────────┘
-```
-</div>
-
-
-${\textcolor{#4f7cff}{💙}}$
-${\textcolor{#fff2e9}{well,\ i\ don't\ mind\ chatting\ (c\ +\ h\ freely\ btw)\.}}$
-
-${\textcolor{#fff2e9}{but\ honestly,\ i'd\ rather\ sit\ together\ in\ silence.}}$
-
-${\textcolor{#d7263d}{❤️}}$
-${\textcolor{#fff2e9}{that\ kind\ of\ company\ means\ much\ more\ to\ me.}}$
+${\textcolor{#8faed9}{19\ y.o.}}$
+${\textcolor{#f4ddb2}{✦}}$
+${\textcolor{#d98a8a}{she/her}}$
+${\textcolor{#f4ddb2}{✦}}$
+${\textcolor{#8faed9}{ru\ /\ eng\ (american)}}$
 
 <br>
 
-${\textcolor{#fff2e9}{you\ don't\ have\ to\ entertain\ me.}}$
+${\textcolor{#f4ddb2}{╭──────────────────╮}}$
 
-${\textcolor{#fff2e9}{you\ don't\ have\ to\ keep\ the\ conversation\ going.}}$
+### ${\textcolor{#d98a8a}{𝑰'𝒎\ 𝒑𝒆𝒓𝒇𝒆𝒄𝒕}}$
 
-${\textcolor{#fff2e9}{your\ presence\ is\ enough.}}$
+### ${\textcolor{#8faed9}{𝒂𝒏𝒅\ 𝑰\ 𝒌𝒏𝒐𝒘\ 𝒊𝒕}}$
 
----
+${\textcolor{#f4ddb2}{╰──────────────────╯}}$
 
-<div align="center">
-
-✨️˚₊‧⁺˖✮————–✮˖⁺‧₊˚✨️
-
-
-```txt
-┌──────────────────────────────────────────────┐
-│      ☆          FINAL NOTICE        ☆          
-└──────────────────────────────────────────────┘
-```
-</div>
-
-
-${\textcolor{#d7263d}{❤️}}$
-${\textcolor{#fff2e9}{however...}}$
-
-${\textcolor{#4f7cff}{💙}}$
-${\textcolor{#ff0000}{compliments\ are\ ALWAYS\ welcome\ lmao.}}$
-
-
-${\textcolor{#fff2e9}{there's\ probably\ nothing\ i\ love\ more,,}}$
-
-
-
----
+<br>
 
 <div align="center">
-  <img width="2424" height="1388" alt="20260607_134458" src="https://github.com/user-attachments/assets/c63bbdaa-505e-4145-94aa-b06b072f5e97" />
+<img width="736" height="736" alt="271be6a5cf2580313daa1dd1e8290d69" src="https://github.com/user-attachments/assets/f8c346bc-8d46-493d-9d25-5527d0443af5" />
+
 
 </div>
 
+<br>
+
+${\textcolor{#d98a8a}{❤️}}$
+${\textcolor{#f4ddb2}{usually\ afk}}$
+${\textcolor{#8faed9}{•\ w2i\ first}}$
+${\textcolor{#f4ddb2}{•}}$
+${\textcolor{#d98a8a}{don't\ c+h\ freely}}$
+
+<br>
+
+${\textcolor{#8faed9}{♡}}$
+${\textcolor{#f4ddb2}{asking\ first\ is\ appreciated}}$
+${\textcolor{#8faed9}{•}}$
+${\textcolor{#d98a8a}{comfortable\ silence\ >\ small\ talk}}$
+
+<br>
+
+${\textcolor{#d98a8a}{☆}}$ ${\textcolor{#f4ddb2}{MAIN\ FANDOMS: }}$
+${\textcolor{#d98a8a}{the\ boys}}$
+${\textcolor{#f4ddb2}{✦}}$
+${\textcolor{#8faed9}{asoiaf}}$
+${\textcolor{#f4ddb2}{✦}}$
+${\textcolor{#d98a8a}{marvel}}$
+
+<br>
+
+${\textcolor{#f4ddb2}{not\ looking\ for}}$
+${\textcolor{#8faed9}{friends,\ lovers}}$
+${\textcolor{#d98a8a}{or\ long-term\ attachments.}}$
+
+<br>
+
+${\textcolor{#8faed9}{we\ can\ chat,\ or\ simply\ exist\ nearby.}}$
+
+<br>
+
+${\textcolor{#f4ddb2}{please\ don't\ expect\ anything\ beyond\ that.}}$
+
+<br>
+
+${\textcolor{#8faed9}{i\ don't\ argue}}$
+${\textcolor{#f4ddb2}{•}}$
+${\textcolor{#d98a8a}{i\ don't\ enjoy\ conflicts}}$
+${\textcolor{#f4ddb2}{•}}$
+${\textcolor{#8faed9}{i'll\ just\ ignore\ people\ who\ bother\ me.}}$
+
+<br>
+
+${\textcolor{#f4ddb2}{╭──────────────────────╮}}$
+
+${\textcolor{#d98a8a}{❤️}}$
+${\textcolor{#8faed9}{compliments}}$
+${\textcolor{#f4ddb2}{are\ always\ welcome.}}$
+
+${\textcolor{#d98a8a}{even\ if\ "DNI"\ is\ in\ my\ nickname.}}$
+
+${\textcolor{#f4ddb2}{╰──────────────────────╯}}$
+
+<br>
 
 <div align="center">
+<img width="735" height="557" alt="178834c7aeb495c1f383662ad648886e" src="https://github.com/user-attachments/assets/650686c0-4aad-4783-92a3-11e6d03546ca" />
 
-❤️✨🤍✨💙✨❤️✨🤍✨💙✨❤️
-
-# ${\textcolor{#d7263d}{🦅}}$ ${\textcolor{#c6daff}{~\ thank\ you\ for\ reading\ ~}}$ ${\textcolor{#4f7cff}{🦅}}$
-
-❤️✨🤍✨💙✨❤️✨🤍✨💙✨❤️
 
 </div>
-
