@@ -14,13 +14,13 @@ ${\textcolor{#8faed9}{ru\ /\ eng\ (american)}}$
 
 <br>
 
-${\textcolor{#f4ddb2}{╭──────────────────╮}}$
+${\textcolor{#f4ddb2}{╭────────────╮}}$
 
 ### ${\textcolor{#d98a8a}{𝑰'𝒎\ 𝒑𝒆𝒓𝒇𝒆𝒄𝒕}}$
 
 ### ${\textcolor{#8faed9}{𝒂𝒏𝒅\ 𝑰\ 𝒌𝒏𝒐𝒘\ 𝒊𝒕}}$
 
-${\textcolor{#f4ddb2}{╰──────────────────╯}}$
+${\textcolor{#f4ddb2}{╰────────────╯}}$
 
 <br>
 
@@ -78,7 +78,7 @@ ${\textcolor{#8faed9}{i'll\ just\ ignore\ people\ who\ bother\ me.}}$
 
 <br>
 
-${\textcolor{#f4ddb2}{╭──────────────────────╮}}$
+${\textcolor{#f4ddb2}{╭─────────────╮}}$
 
 ${\textcolor{#d98a8a}{❤️}}$
 ${\textcolor{#8faed9}{compliments}}$
@@ -86,7 +86,7 @@ ${\textcolor{#f4ddb2}{are\ always\ welcome.}}$
 
 ${\textcolor{#d98a8a}{even\ if\ "DNI"\ is\ in\ my\ nickname.}}$
 
-${\textcolor{#f4ddb2}{╰──────────────────────╯}}$
+${\textcolor{#f4ddb2}{╰─────────────╯}}$
 
 <br>
 
